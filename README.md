@@ -1,15 +1,24 @@
-    ![image](https://github.com/user-attachments/assets/cb526881-39b6-40b5-94a1-e343c9876f07)
-
-
-                     ![image](https://github.com/user-attachments/assets/8b3e560e-400a-4960-be96-4e018abcd2c7)
+![image](https://github.com/user-attachments/assets/7822e0f5-cc50-424e-bc0f-190805a39421)
 
 
 
-
-    <img src=https://64.media.tumblr.com/ce176b675eb99f1ad4b25e86fe0c5e93/3e7cd672320c16a5-ec/s1280x1920/c389f03aca3a515d5e779989139150a09a253b59.gifv width="400px">
-
+![image](https://github.com/user-attachments/assets/05de6f2a-2067-4c50-b981-0724f2b4f63a)
 
 
 
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀    ⠀⠀⠀ ![image](https://github.com/user-attachments/assets/a944a89c-f3df-42b8-9bef-1bd214035c12)
 
-wip for now 💔
+
+
+
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<img src=https://64.media.tumblr.com/f01494a1399c1110ee2ba0359fbdfd35/afce9ac8d7a51275-03/s500x750/2922c722534117f87b074bf5e3623b7b7cbf52b2.gifv width:>
+
+
+
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀"**Just Monika.**" <img src=https://64.media.tumblr.com/417eb1a9ec823cfc4aee1a22f40ed7e8/a7847445d679bd37-e3/s75x75_c1/f169323dace382c195873bf40cced805f4683347.gifv width:>
+
+
+![image](https://github.com/user-attachments/assets/934ff1fe-4cd3-42ad-aea5-3cdf8d41d2a7)
+
+
+(creds to lavendergalatic from tumblr for the monika graphic + infectedrpd for the dividers.)
