@@ -11,7 +11,7 @@
 
 
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<a href="https://discordid.netlify.app/?id=873902369354706945">DISCORD</a>  <img src=https://64.media.tumblr.com/417eb1a9ec823cfc4aee1a22f40ed7e8/a7847445d679bd37-e3/s75x75_c1/f169323dace382c195873bf40cced805f4683347.gifv width:>
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<a href="https://discordid.netlify.app/?id=873902369354706945">DISCORD</a>  <img src=https://64.media.tumblr.com/417eb1a9ec823cfc4aee1a22f40ed7e8/a7847445d679bd37-e3/s75x75_c1/f169323dace382c195873bf40cced805f4683347.gifv width:>
 
 
 ![image](https://github.com/user-attachments/assets/934ff1fe-4cd3-42ad-aea5-3cdf8d41d2a7)
