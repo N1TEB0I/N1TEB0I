@@ -1,21 +1,16 @@
-![image](https://github.com/user-attachments/assets/faa789f4-3c8c-435e-9137-d0411e98dcc4)
+      ![image](https://github.com/user-attachments/assets/7d461c3c-4ebd-4b56-a613-be7c70400a9b)
 
 
 
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀    ⠀⠀⠀   ![image](https://github.com/user-attachments/assets/a944a89c-f3df-42b8-9bef-1bd214035c12)
+     ![image](https://github.com/user-attachments/assets/ee03c918-a42e-4967-8710-ace2d450df94)
 
 
+![image](https://github.com/user-attachments/assets/cae62bd6-bbb2-448a-91ea-eec7f27523f1)
 
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<img src=https://64.media.tumblr.com/f01494a1399c1110ee2ba0359fbdfd35/afce9ac8d7a51275-03/s500x750/2922c722534117f87b074bf5e3623b7b7cbf52b2.gifv width:>
+              <a href="https://discordid.netlify.app/?id=873902369354706945">![image](https://github.com/user-attachments/assets/50a333e3-3b08-4fb3-878d-1e589f27294a)
+></img></a>
 
 
-
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀<a href="https://discordid.netlify.app/?id=873902369354706945">DISCORD</a>  <img src=https://64.media.tumblr.com/417eb1a9ec823cfc4aee1a22f40ed7e8/a7847445d679bd37-e3/s75x75_c1/f169323dace382c195873bf40cced805f4683347.gifv width:>
-
-
-![image](https://github.com/user-attachments/assets/934ff1fe-4cd3-42ad-aea5-3cdf8d41d2a7)
-
-
-(creds to lavendergalatic from tumblr for the monika graphic + infectedrpd for the dividers.)
+      ![image](https://github.com/user-attachments/assets/4908fac6-27c5-4e3b-b240-cc0763cc8673)
