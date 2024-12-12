@@ -1,9 +1,15 @@
-
-     ![image](https://github.com/user-attachments/assets/ee03c918-a42e-4967-8710-ace2d450df94)
-
-
-![image](https://github.com/user-attachments/assets/cae62bd6-bbb2-448a-91ea-eec7f27523f1)
+![image](https://github.com/user-attachments/assets/2f1b4653-6392-4561-863e-da587d06026d)
 
 
-                 <a href="https://discordid.netlify.app/?id=873902369354706945">![image](https://github.com/user-attachments/assets/50a333e3-3b08-4fb3-878d-1e589f27294a)
-></img></a>
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![image](https://github.com/user-attachments/assets/351a901c-43cc-4067-85b6-4853568fdefb)
+
+
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<a href="https://discordid.netlify.app/?id=873902369354706945">![image](https://github.com/user-attachments/assets/3ba83670-7f20-4cc3-9262-754bfc00fb70) ![image](https://github.com/user-attachments/assets/fbb8d475-ff17-4e3d-8808-2176f605f13a)
+ <a href="https://www.tiktok.com/@n1teb0i">![image](https://github.com/user-attachments/assets/0a35fcce-27f5-44bf-af2e-503a9194ac9d)
+
+></img>
+
+
+![image](https://github.com/user-attachments/assets/2f1b4653-6392-4561-863e-da587d06026d)
