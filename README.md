@@ -9,9 +9,7 @@
 
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<a href="https://discordid.netlify.app/?id=873902369354706945"><img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/258428a0-d361-43a9-962d-5fe566459d36" />
-
- <a href="https://www.tiktok.com/@n1teb0i"><img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/e8c697f2-5034-4d07-a370-80df782e6fe6" />
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<a href="https://discordid.netlify.app/?id=873902369354706945"><img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/258428a0-d361-43a9-962d-5fe566459d36" />  <a href="https://www.tiktok.com/@n1teb0i"><img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/e8c697f2-5034-4d07-a370-80df782e6fe6" />
 
 
 ></img>
