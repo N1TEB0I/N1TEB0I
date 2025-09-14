@@ -1,4 +1,4 @@
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ![](https://komarev.com/ghpvc/?username=N1TEB0I&color=ffcf6f)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ![](https://komarev.com/ghpvc/?username=N1TEB0I&color=b6308f)
 
 <img width="1554" height="626" alt="image" src="https://github.com/user-attachments/assets/06267dd3-d869-4b15-8a40-8561e4b03def" />
 
