@@ -1,17 +1,21 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ![](https://komarev.com/ghpvc/?username=N1TEB0I&color=ffcf6f)
 
-![image](https://github.com/user-attachments/assets/2f1b4653-6392-4561-863e-da587d06026d)
+<img width="1554" height="626" alt="image" src="https://github.com/user-attachments/assets/06267dd3-d869-4b15-8a40-8561e4b03def" />
 
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![image](https://github.com/user-attachments/assets/351a901c-43cc-4067-85b6-4853568fdefb)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="1019" height="626" alt="image" src="https://github.com/user-attachments/assets/ec5335ea-6abb-407d-85b4-39f9f1cb05a3" />
 
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<a href="https://discordid.netlify.app/?id=873902369354706945">![image](https://github.com/user-attachments/assets/3ba83670-7f20-4cc3-9262-754bfc00fb70) ![image](https://github.com/user-attachments/assets/fbb8d475-ff17-4e3d-8808-2176f605f13a)
- <a href="https://www.tiktok.com/@n1teb0i">![image](https://github.com/user-attachments/assets/0a35fcce-27f5-44bf-af2e-503a9194ac9d)
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<a href="https://discordid.netlify.app/?id=873902369354706945"><img width="710" height="610" alt="image" src="https://github.com/user-attachments/assets/258428a0-d361-43a9-962d-5fe566459d36" />
+
+ <a href="https://www.tiktok.com/@n1teb0i"><img width="710" height="610" alt="image" src="https://github.com/user-attachments/assets/e8c697f2-5034-4d07-a370-80df782e6fe6" />
+
 
 ></img>
 
 
-![image](https://github.com/user-attachments/assets/2f1b4653-6392-4561-863e-da587d06026d)
+<img width="1554" height="626" alt="image" src="https://github.com/user-attachments/assets/8c289375-43ad-485c-9078-085f9119529b" />
+
