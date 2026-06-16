@@ -18,6 +18,3 @@
 
 <img alighn="right" src="https://files.catbox.moe/m34b2v.webp" width="990" height="20">
 
-
-<img width="1554" height="626" alt="image" src="https://github.com/user-attachments/assets/8c289375-43ad-485c-9078-085f9119529b" />
-
