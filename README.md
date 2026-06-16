@@ -13,7 +13,7 @@
 
 <img src="https://files.catbox.moe/u1w3mw.webp" width="460" height="140">
 
-<a href="https://rentry.co/ponystars"><img width="65" height="60" alt="image" src="https://files.catbox.moe/umu5x2.webp" /><a href="https://rentry.co/mimea"><img width="65" height="60" alt="image" src="https://files.catbox.moe/v0cyu9.webp" /><a href="https://rentry.co/herself"><img width="65" height="60" alt="image" src="https://files.catbox.moe/0aegru.webp" />
+<a href="https://rentry.co/ponystars"><img width="65" height="60" alt="image" src="https://files.catbox.moe/umu5x2.webp" /><a href="https://rentry.co/mimea"><img width="65" height="60" alt="image" src="https://files.catbox.moe/v0cyu9.webp" /><a href="https://rentry.co/herseIf"><img width="65" height="60" alt="image" src="https://files.catbox.moe/0aegru.webp" />
 ㅤㅤㅤㅤ<a href="https://discordid.netlify.app/?id=1227641873183539242"><img width="85" height="80" alt="image" src="https://github.com/user-attachments/assets/258428a0-d361-43a9-962d-5fe566459d36" /><a href="https://www.tiktok.com/@n1teb0i"><img width="85" height="80" alt="image" src="https://github.com/user-attachments/assets/e8c697f2-5034-4d07-a370-80df782e6fe6" />
 
 <img alighn="right" src="https://files.catbox.moe/m34b2v.webp" width="990" height="20">
