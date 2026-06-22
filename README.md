@@ -1,4 +1,4 @@
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ   ![](https://komarev.com/ghpvc/?username=N1TEB0I&color=270c58)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ   ![](https://komarev.com/ghpvc/?username=N1TEB0I&label=angels+ִֶָ🪽་༘&color=270c58)
 
 <img alighn="right" src="https://files.catbox.moe/m34b2v.webp" width="990" height="20">
 
